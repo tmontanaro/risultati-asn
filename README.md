@@ -2,7 +2,7 @@
 
 # Risultati VI Quadrimestre ASN 2021
 
-Ultimo aggiornamento 01/10/2025 12:25:43 pm.
+Ultimo aggiornamento 01/10/2025 02:52:45 pm.
 
 Usciti 190 settori su 190.
 
