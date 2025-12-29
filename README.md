@@ -2,7 +2,7 @@
 
 # Risultati III Quadrimestre ASN 2023
 
-Ultimo aggiornamento 29/12/2025 09:24:16 pm.
+Ultimo aggiornamento 29/12/2025 11:21:00 pm.
 
 Usciti 0 settori su 190.
 
