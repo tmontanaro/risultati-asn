@@ -2,7 +2,7 @@
 
 # Risultati VI Quadrimestre ASN 2023
 
-Ultimo aggiornamento 07/11/2026 06:55:08 pm.
+Ultimo aggiornamento 07/11/2026 11:27:35 pm.
 
 Usciti 190 settori su 190.
 
